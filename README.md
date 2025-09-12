@@ -27,6 +27,6 @@
 ### 📫 Connect with Me
 - 🌍 [...](#)  
 - 💼https://www.linkedin.com/in/reet-habar-2a7a76237?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
-- ✉ reethabar2@email.com  
+- ✉ reethabar2@gmail.com  
 
-⭐ Fun fact: I love mixing *physics, coding, and problem-solving* into creative projects!
+⭐ Fun fact: I love coding, and problem-solving* into creative projects!
